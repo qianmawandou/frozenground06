@@ -1,15 +1,13 @@
 ---
-
 layout: post
 title: （待授翻）（瓜kun）（ABO）Don’t Worry, It’s Not Gonna Hurt
 date: 2024-04-16
 Author: Fanficburner
 tags: [sample, document]
 comments: true
-
-***
-
+---
 【待授翻】（瓜kun）（ABO）Don’t Worry, It’s Not Gonna Hurt
+
 
 先说声抱歉！授权信有写，但不知如何翻去AO3向作者留言
 It's such a wonderful fic! can I translate this great fic into chinese so that more people can read？and your name and original address will be attached.looking forward for you reply.thank you！
